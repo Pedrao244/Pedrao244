@@ -15,5 +15,5 @@
 
 
 
- !{}(https://media1.tenor.com/m/-GB2frTtFX4AAAAC/coownergodly.gif)
+ !{}()
   
