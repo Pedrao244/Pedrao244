@@ -9,7 +9,7 @@
 
 
 
- ## vc pode entrar em contaado comigo
+ ## vc pode entrar em contado comigo
 
  00001091112319sp@al.educacao.sp.gov.br
 
